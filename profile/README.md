@@ -21,6 +21,7 @@ ________________________________________________________________________________
 <p align="center">
  <br /> Production by
  <br /> DATA INDO CENTER - IPB SSRS ASSOCIATION 
+ <br /> CP: +62 813-9293-6228 (Fajar Raihan, Head of)
   </p>
 <p align="center">
  This media is directly controlled by 
